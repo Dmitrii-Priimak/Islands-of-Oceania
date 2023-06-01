@@ -5,7 +5,7 @@ The lush vegetation of the islands of Oceania makes it almost impossible to trav
 ___
 
 ## Strange traditions
-
+In the depths of the islands there are tribes that have hardly been affected by modern civilization. It is very interesting!
 ___
 
 ## Stay alive
