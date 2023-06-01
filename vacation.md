@@ -9,5 +9,5 @@ In the depths of the islands there are tribes that have hardly been affected by 
 ___
 
 ## Stay alive
-Sometimes I think maybe it's better to stay at home? )))
+If you are invited to a traditional meal, be careful. until the second half of the 20th century there were cases of cannibalism ...  *Happy return from your trip!*
 ___
